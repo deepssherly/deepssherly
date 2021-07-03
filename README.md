@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **deepthisherly0107@gmail.com**
 
-- 😄 Pronouns **She/Her**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
